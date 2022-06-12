@@ -2,7 +2,7 @@
 
 My name is **Dony Nur Hidayat**
 
-[Universitas Muhammadiyah Malang](https://www.umm.ac.id/)
+Student Of [Universitas Muhammadiyah Malang](https://www.umm.ac.id/)
 
-[Instagram](https://www.instagram.com/donynurh/)
+Here is my [LinkedIn](https://www.linkedin.com/in/dony-nur-hidayat-848077232/)
 
